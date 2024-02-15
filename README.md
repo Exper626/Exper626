@@ -13,4 +13,6 @@ I love to learn something new 🤓 even if it is not related to my goals 😵
 I am renowned for brainstorming 😌✨
 
 Don't hesitate to share memes, spread dark humor, and join to discuss... anything
+Let's vibe in Discord.
+I am rou5534u
 ❤💙
